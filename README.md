@@ -1,5 +1,5 @@
 # Information-Technology-Fundamentals
-Information Technology Fundamentals
+## 🎓 Certifications & Achievements
 
 ### 🏅 2025
 - **Information-Technology-Fundamentals**  
